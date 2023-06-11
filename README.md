@@ -3,7 +3,7 @@
 #
 
 ### About Me 
-15yo asocial shit who cheats in csgo
+asocial shit who cheats in csgo
 
 #
 
